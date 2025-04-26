@@ -1,1 +1,1 @@
-Espero conseguir ajudar com algumas resolu√ß√µes e at√© mesmo ver como o c√≥digo pode melhorar e chegar mais perto de como um profissional trabalha, tuso ir√° mudando conforme meu aprendizado.
+Espero conseguir ajudar com algumas resolucıes e atÈ mesmo ver como o cÛdigo pode melhorar e chegar mais perto de como um profissional trabalha, tudo ir· mudando conforme meu aprendizado.
